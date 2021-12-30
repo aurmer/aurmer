@@ -1,1 +1,1 @@
-## Let's get codin.
+## Let's get coding
